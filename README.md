@@ -1,5 +1,6 @@
 
-![Banner](https://github.com/user-attachments/assets/051e40e8-c9be-4062-ad3c-afc58460b2c5)
+![Banner](https://github.com/user-attachments/assets/445fdb7b-1210-45d6-be43-1fb015493c92)
+
 
 
 # Hello  buddies 👋🏻🙋🏻. I am Preet Kaklotar.
